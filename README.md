@@ -1,0 +1,2 @@
+# philosophy
+nihilism and pessimism
